@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Zhan, student of NIS CBD Almaty
+- 👀 I am big fan of physics and all fields related to that. Also, I enjoy coding, modelling and doing math.
+- 🌱 I am currently learning CAD nad further Python, wish me luck!
+- 📫 You can reach me via e-mail: zhanamankeldy@gmail.com
